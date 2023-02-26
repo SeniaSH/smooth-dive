@@ -1,1 +1,1 @@
-https://SeniaSH.github.io/rsschool-cv/
+https://SeniaSH.github.io/smooth-dive/
